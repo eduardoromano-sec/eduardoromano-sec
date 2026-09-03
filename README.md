@@ -76,4 +76,4 @@ I'm interested in opportunities involving:
 
 ## 📫 Connect with me
 
-- LinkedIn: [coloque seu LinkedIn aqui]
+- LinkedIn: [https://www.linkedin.com/in/eduromano/]
